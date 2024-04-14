@@ -1,16 +1,20 @@
-### Hi there 👋
+<p align="center">
+    <img width="450" src="https://i.pinimg.com/564x/75/86/07/75860718d9139df7b7dc3a6d6e2bd8e4.jpg">
+</p>
 
-<!--
-**anstukoo/anstukoo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+ 　　　𓎠𓎠 　NOTHING HERE!!!! i'm Ash Just an artist! and a animator.. how did u find me ;-; 
+  <p align="center">
+ i Dont do coding stuff sadlyy.. its not my type of stuff i want to do◞◟
+  <p align="center">
+Im a minor Do not be Weird to me !  _〆(´Д｀ )
+ </p>
 
-Here are some ideas to get you started:
+## ALL MY SOCIAL ! ! 
+https://rentry.co/anstukoo https://open.spotify.com/user/317ednurbwnmem3sveyae2r73ixu 
+https://twitter.com/anstukoo https://toyhou.se/anstukoo https://www.pinterest.fr/iluvgoku/
+If you wish to interact you can follow me and send a dm for a question! (not in github! i rarely check github
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## 
+![Alt text](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ab425c09-1414-4a56-b5e1-6febe3c582a9/d2r6md0-0783eb36-7fa1-4954-8a2c-3c02596710fc.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2FiNDI1YzA5LTE0MTQtNGE1Ni1iNWUxLTZmZWJlM2M1ODJhOVwvZDJyNm1kMC0wNzgzZWIzNi03ZmExLTQ5NTQtOGEyYy0zYzAyNTk2NzEwZmMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.STxa0USNwdRGXwGQYSbnJz8bENL4RJX4NhhGY1fwat0)![Alt text](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/07be1e05-b25d-4fd1-b482-56adc5261359/d92xrz0-f12bccc6-a673-4099-a6d5-7f9d07e6c110.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzA3YmUxZTA1LWIyNWQtNGZkMS1iNDgyLTU2YWRjNTI2MTM1OVwvZDkyeHJ6MC1mMTJiY2NjNi1hNjczLTQwOTktYTZkNS03ZjlkMDdlNmMxMTAuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.SE4GYS5TOyAeFyEctdGrOMOikbSGFbytKKXjZgX9MOA)![Alt text](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/07be1e05-b25d-4fd1-b482-56adc5261359/d92yqlg-fe2f0c5c-eede-4edc-9cbd-4cc314efab47.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzA3YmUxZTA1LWIyNWQtNGZkMS1iNDgyLTU2YWRjNTI2MTM1OVwvZDkyeXFsZy1mZTJmMGM1Yy1lZWRlLTRlZGMtOWNiZC00Y2MzMTRlZmFiNDcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.sKDsakgawTFjN8zLZo9m_E2iFTM_oarLgQscCQ7Pd7w)![Alt text](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/6487692c-232d-4ae2-a43e-9ba13ad0ca57/d2rssf1-f639ce8b-2442-4cea-a811-d7f6b7d41de8.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzY0ODc2OTJjLTIzMmQtNGFlMi1hNDNlLTliYTEzYWQwY2E1N1wvZDJyc3NmMS1mNjM5Y2U4Yi0yNDQyLTRjZWEtYTgxMS1kN2Y2YjdkNDFkZTgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.aa_9Erdlj5fAO4o7e9sIVIHYOVn72puaxVE5gy7HT1E)![Alt text](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/87d6b7c5-7455-46ca-aeaf-9a0438b11a6b/d51dv9d-3dc08f0b-ba9e-4e8c-86e6-359ec5355941.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzg3ZDZiN2M1LTc0NTUtNDZjYS1hZWFmLTlhMDQzOGIxMWE2YlwvZDUxZHY5ZC0zZGMwOGYwYi1iYTllLTRlOGMtODZlNi0zNTllYzUzNTU5NDEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.bboJSyIf01J6MNd44jZDQdJNUEgAy4RwODgk5cR85dk)![Alt text](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/27128401-77e2-4568-bf2f-237a51b5d815/d1cpz73-bcaa82a8-ec98-4190-8693-98bac907709e.jpg/v1/fill/w_99,h_55,q_75,strp/loveable_fool_stamp_by_dbzbabe_d1cpz73-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTUiLCJwYXRoIjoiXC9mXC8yNzEyODQwMS03N2UyLTQ1NjgtYmYyZi0yMzdhNTFiNWQ4MTVcL2QxY3B6NzMtYmNhYTgyYTgtZWM5OC00MTkwLTg2OTMtOThiYWM5MDc3MDllLmpwZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.4mGDH7lO-dorD4wrjiN6xQe8oiU84CWLTdaUzyaN4-A)
+</p>
